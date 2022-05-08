@@ -1,6 +1,6 @@
 Hey there,
 
-As of now this is just going to hold my dot files and school stuff.
+Not much to look at... yet.
 
 @tairenfd
 
