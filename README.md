@@ -1,6 +1,6 @@
 Hey there,
 
-Not much to look at... yet.
+I probably have some more info @ [my site](https://tairenfd.xyz "tairenfd.xyz")
 
 @tairenfd
 
